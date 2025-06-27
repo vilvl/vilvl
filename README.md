@@ -15,7 +15,7 @@
 - See more detail:
   - [CV](https://www.canva.com/design/DAGoobDH8yw/jPI-Oo18mJARWMkoCoL63g/view?utm_content=DAGoobDH8yw&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hbfe4910ac3)
 - How to reach me:
-  - [LinkedIn Profile](https://www.linkedin.com/in/vladimir-vilenskii-91b54730a/)
+  - [LinkedIn Profile](https://www.linkedin.com/in/vladimir-vilenskii/)
   - Email: <vilenskii.v@gmail.com>
 
 ## I'm looking for opportunities
